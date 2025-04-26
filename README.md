@@ -1,0 +1,2 @@
+# info
+📦 Lista detalles generales
